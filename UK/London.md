@@ -67,3 +67,5 @@ were 2 crowd favourites
 Food highlights:
 Tesco meal deal
 B2B double full english I made at Jeanies
+Apples! Very crisp and yummy. Bisected along their x axis for a cute star and fit-into-mouth-ability
+Root vegetables were cheap so stew was good. Tried some celeriac that shit was cash, held a nice fresh watery flavour
