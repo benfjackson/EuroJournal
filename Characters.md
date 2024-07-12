@@ -48,6 +48,10 @@ Polyamorous, all of them had partner status. Had a brutal breakup at the start o
 Bella
 From Colorado, shot her first gun at 14, it was a pink AK with unicorns on it.
 "If I didn't get a photo of it, it's like it never happened"
+\*\*Pull out thematically
+
+Digital nomad lady
+She said she hadn't stayed in a hostel in several months. Was just moving around staying at peoples houses. She said she would go to the walking tours and befriend people there. When I asked her about digital nomading, she said that sometimes it got lonely working on her own.
 
 Paul
 From Dresden - HIT HIM UP FOR RECS IN DRESDEN.
@@ -117,3 +121,62 @@ Not her real name, she just gave the vibes of one.
 
 The Adelaide Man
 Speaking to him was a fever dream. Aussie battler type. Full of stories that never felt super original Tough to get a word in. Was playing strong defence on the cute goth girl (I saw him ask for and get a hug when he left), who came to speak to me only after he left.
+
+# Amsterdam
+
+# Haarlem
+
+Dani the storyteller
+Wild brown hair, eyes that widened to express any and every microemotion that passed through her words. She spoke with such a passion, and told me a little about telling stories and told me one of hers. The story featured another story told to her by a patron of a bar she used to work at. The story was about a man who saved all his pennies and died before spending any of them on anything meaningful.
+She said the way to pull people into stories is to give them a few details about the setting and characters first. Describe the person & place in a way that tells u who they are.
+
+# Hamburg
+
+6 Australians. Reminder that Im doing pretty well on my travels experiencing culture etc.
+They were just here to drink beer in different places and make loud & unoriginal shitty racist jokes.
+He rattled off a long list of places he'd been. Although I barely saw him leave the hostel, I'm sure he'll add Hamburg to the list.
+
+The Boring American
+This man was straight out of every hinge nightmare meme.
+He told me in incredibly meticulous detail about whatever he was talking about - bouldering, concerts, fighter jet engines, engineering procedures.
+He was seemingly unphased when I'd change the topic of conversation mid-monologue.
+Was very into bouldering
+he showed me a 5 minute video of a concert and pulled it back up for me after id watched 30secs then scrolled away.
+Threw my best at him but finally I cracked him with a dick joke.
+
+# Berlin
+
+Kitkat Jesus
+Self proclaimed - you cannot be a self proclaimed Jesus.
+He wore a little crown to emphasise this.
+Was super proud of how he ~owned~ kitkat.
+I saw him the following week going around vaguely begging/getting rejected.
+
+The Mysterious Anarchist.
+Seen sunday morning 8am next to the river reaching into bins, collecting the glass bottles to hurl aggressively overhand style into the pavement, spraying shards into the river. After he finished with his first bin, he kept crawling up the river hunting for more bins.
+
+Alyna
+Blind girl who loved going clubbing.
+"What's your lore?"
+
+Kobe
+Tech bro crypto CEO LARPing as a gay guy.
+Bragged about being good at manipulation.
+Got like 20 euro drinks off me and lots of drugs off Duane.
+Crushed him in chess, he gave up and made the earliest concede I've seen.
+I made him keep playing, no giving up like a bitch.
+He referred to the second half as "only playing for fun" as if that wasnt what we were already doing.
+
+George
+Bold, muscular
+Stays at Sandino for months on end.
+Incredible at making friends, he would strike up conversations out of nothing. Ended up sharing a bottle of wine on the spot with a guy he talked to off the train.
+
+Jess, Kareen and Duane
+Some sweet Americans, Jess was always high on mushrooms, Duane on minimum 4 substances at all points in time, and Kareen talking about her mysterious boy.
+
+Ella
+First Australian girl from Sydney I met.
+Gave the relationship an air of accountability.
+Would pendulum between funny to saying super bitchy comments.
+Wanted to fuck in KitKat.
