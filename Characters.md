@@ -1,12 +1,14 @@
 # Portugal
 
 Wilkers uncle
-Unloaded the family trauma onto Wilker right in front of me. Wilker was translating to me the war crimes his family witnessed and their fleeing to Portugal from Angola.
+Unloaded the family trauma onto Wilker right in front of me. Wilker was translating to me (as he was hearing for the first time) the war crimes his family witnessed (maybe committed?) and their fleeing to Portugal from Angola.
 Referred to his wife as his bicycle.
 
 American Lady
 Older lady who kept wanting to hang out.
+Although she was not /that/ old, the cigarettes and sun had taken their toll and left her saggy and crispy at the same time. She wore her bikini and makeup like she was clinging onto her youth.
 Wanted to interview me for her teaching project. She wants to teach young people resilience because they dont know how to deal with failure.
+I was experiencing my first bout of sadness at leaving a friend (Wilker), and just wanted to be on my own. Despite her multiple invitations to come and hang with her on the beach, I went on my own. I still ended up seeing her down at the beach, but pretended to not and walked off.
 
 # Spain
 
@@ -161,11 +163,15 @@ Blind girl who loved going clubbing.
 
 Kobe
 Tech bro crypto CEO LARPing as a gay guy.
-Bragged about being good at manipulation.
-Got like 20 euro drinks off me and lots of drugs off Duane.
-Crushed him in chess, he gave up and made the earliest concede I've seen.
+Works 7 days a week. I see him post his ice baths on insta.
+Was staying above the Berlin wall but showed no appreciation for it.
+Bragged about being good at manipulation. - Got like 20 euro drinks off me and lots of drugs off Duane.
+He dodged my kiss but I fucked him in chess.
+He gave up and made the earliest concede I've seen.
 I made him keep playing, no giving up like a bitch.
 He referred to the second half as "only playing for fun" as if that wasnt what we were already doing.
+Ordered us breakfast - himself the smoked salmon platter and me the cheese for 16 euro apiece.
+An atrociously meagre feed turned up - I left before finishing mine.
 
 George
 Bold, muscular

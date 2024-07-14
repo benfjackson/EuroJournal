@@ -1,11 +1,30 @@
 Anarchist vibe
 
 Sysiphus I
-Went with my X. (hehe)
+
+I skipped the queue by joining some French girls and gays I met at my last hostel. The three I knew (one with blue eyebrows, one netted in white, the final in a pink cowgirl hat adorned with fluff and silver stars) spoke a little English to me but eventually reverted to their mother tongue to make witticisms interpretable only to their ears.
+They went through, then I faced security alone with my entry ticket: Dad's green mottled African crocodile skin shirt.
+The Kiwi was waiting inside for me, where it took half an hour for her to make me an indecent proposal and then leave. Finally, I was on my own with my true love, my ex.
+
+She widened my pupils so I could see truly as much as is possible, then together we tottered like giddy children around the enchanted playground made for our romance.
+
+We wandered in wonder, inspecting all the intricate details that painted magic onto the old factory, its beach hut and garden. Walls of rabbit portraits, hanging antiques, twin telephones that called eachother across the yard, a giant mirror ball spotlighted in deep golds.
+
+The real magic of the place was the set of magical characters that inhabited it. By night
+
+and filled with characters in vibrant costumes. I saw people with hula hoops, people pushing around tiny unicorns on wheels, someone getting walked on their leash.
+
 Incredible people watching. So many people from different cultures. Sitting in the smokers area I could hear languages spanning the continents.
 Everyone was dressed in their party attire from home.
 I didnt see any security guards around, it seemed like noone really needed them - they were strict on the door about not letting in bad vibes.
-The place reminded me of the Night Circus. I was wandering in wonder at all the intricate details that painted magic onto the place. Walls of art, hanging antiques, a telephone that called its twin across the yard, a giant mirror ball spotlighted in deep golds, and filled with characters in vibrant costumes. I saw people with hula hoops, people pushing around tiny unicorns on wheels, someone getting walked on their leash.
+The place reminded me of the Night Circus.
+
+Sitting in the outdoor garden and paralysed except for the muscles required to move my eyes and laugh, I watched /les Francais arriver/.
+The cowgirl got up onto the podium to protect the courtyard from villains by brandishing her finger pistols and /paroles français/.
+As I sat in the corner, I imagine my dinner plate eyes, constant giggling and oblong mouth made a villain out of me. She glanced over once and not again.
+The fear of social interaction mounting, I had to escape the French posse guarding the road between me and the dance floor. I hopped across the pond's rocks and pulled myself up into the jungle outlook - I would have done any amount of parkour to avoid a social interaction.
+
+When morning had arrived, the revelers had left, leaving only the cast to perform their magic at the circus.
 
 dressed vibrantly
 

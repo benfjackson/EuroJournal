@@ -18,4 +18,6 @@ characters as foils for myself
 
 - the artist
 - the digital nomad
--
+- regular ppl at the hostel
+
+# How have I changed as a person?
