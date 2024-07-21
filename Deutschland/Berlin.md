@@ -1,5 +1,7 @@
 Anarchist vibe
 
+In the toilets with Carlos, the man pulled bag upon bag of mystery substances out of the sock in his crotch until he had an ali-baba-esque pile of treasure sitting upon the toilet cistern.
+
 Sysiphus I
 
 I skipped the queue by joining some French girls and gays I met at my last hostel. The three I knew (one with blue eyebrows, one netted in white, the final in a pink cowgirl hat adorned with fluff and silver stars) spoke a little English to me but eventually reverted to their mother tongue to make witticisms interpretable only to their ears.

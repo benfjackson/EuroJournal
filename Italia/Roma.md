@@ -5,6 +5,8 @@ Major points
 
 - Churches everywhere, All of them were crazily good. otw to see one, I ran into 3 of the craziest churches Id ever seen. Some of them were hidden inside ruins/in unassuming
 
+- The priest thought I was praying but I was just in silent meditative contemplation. Which is praying.
+
 - So much gold in all the churches (donated by the spanish post south america conquest)
 
 - Organ worth 2m asking for donations coz they can't afford repairs
@@ -20,7 +22,7 @@ Major points
 
 - Architecture was lovely, there was a common lovely textured rustic ochre paint.
 
-- Lots of secret police everywhere - modern regime in amongst all the ancient ones
+- Lots of secret police everywhere - modern regime in amongst all the ancient ones. Their sirens were constantly going off as they raced around town. Italians are so dramatic.
 
 - So many different eras of history coexisting. Everyone loved to conquer Roma. Link sacks of Rome
   Woe to the vanquished

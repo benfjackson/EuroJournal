@@ -7,7 +7,67 @@ Beer was cheap so smacked several of them with the other (slightly) older ppl in
 I called Tyson the day afterwards to have a sook about my lack of holiday romance. The universe was listening too, because not an hour later, I met
 
 Emma.
-Existentialist, chain smoker, French.
+Existentialist, chain smoker, master of the French pout.
+
+A theme of my trip has been dealing with feelings of regret. Lunches I should have bought, people I should have gone home with, museums I should have visited, drugs I should have hidden better - the missed opportunities holding me back from adventuring perfectly have mercilessly haunted my subconcious.
+I am aware that nothing can be perfect.
+I am aware that I should focus on and be thankful for the incredible experiences I have been able to enjoy.
+
+Regardless, my internal monologue has constant discussions with a critic who understands my every shortcoming, my every mistake, and loves to point out to me how I could have done better.
+Life is a game of the minutest margins, and the wings of the butterfly decide between misery and ecstasy.
+A brief episode of thoughtlessness is all it takes to make an irreversibly poor decision to lead you down the path towards the hooded man with sharp instruments ready to plunge into your mind.
+My torture would occur as I performed the mundanities of life, unremarkable banalities that were taking the place of what should have been my victorious prizes.
+I would sit and realise, in the emptiness, the wonders of what could have been.
+My vivid imagination would treat me to illustrious visions of the joy that was tantalizingly at my fingertips then cast aside by some flash of my own stupidity.
+
+My regret was to come face-to-face with Edith Piaf in an incredible episode of my adventures set in Krakow, Poland.
+Before we journey to the south of Poland however, we must detour to Berlin.
+In Berlin I went on a six day bender, sampling the wide variety of elixirs, magic powders, tiny runestones and herbal remedies that the magical city and its inhabitants had to offer.
+Despite this excitement, the largest comedown I had was caused by the ever potent oxytocin.
+The primal brain treats the abandonment of a group of friends as seriously as death itself - for our ancestors the former would almost certainly lead to the latter. Upon leaving my fiesta friends (and someone I had a flicker of a romance with), I was approached by regret's executioner.
+
+I had run from Berlin to Prague, a notoriously beautiful city
+
+---
+
+She got up to leave, announcing the final moments before opportunity's extended hand would release me to fall once again into void.
+Life itself hung poised, awaiting my action that would push its delicate balance act either into the ravine of despair or the heavenly clouds of joys ascension.
+
+The butterfly's wings pushed me forwards, forwards to say hello, forwards to ask if she was alone too, forwards to ask if she would like to escape together into the company of anothers presence.
+I wonder how many soulmates of mine have balanced upon this knife only to fall into the abyss of lost never-knowing.
+
+---
+
+Emma was her name. She was French, an existentialist and a chainsmoker (a triplet tautology). We looked alike - cautiously pretty in wavily curled brown hair worn with bangs and a triangle that rests just above the shoulders. We thought alike - educated in the logics of STEM and lamenting the lack of art's romantic touch in our schooling. We traveled alike - sitting, observing and making interesting commentary about the way people are.
+
+Although English was her second language, she was still able to understand me better than anyone else I had met on my trip.
+Stripped of the wordplay and extended vocabulary I am partial to, we distilled the infinite complexities of the angst of youth and the absurdity of life into a simple mutually understandable set of words. Finally, I felt I had met someone who understood and saw the world as I did.
+
+All we want is to see recognition of ourselves in another, to see that there are others who understand things like us, who feel like us, to feel we are not alone in this horrifically empty world.
+
+---
+
+We each went to Auschwitz in seperate languages.
+
+---
+
+We spent five nights together. By the third we were making out ferociously in public, much to our immediate pleasure and restrospective embarrassment.
+Despite her obvious extreme arousal evidenced by her enjoyment of giving and receiving heavy petting, she declined a dirty fuck in the toilet.
+She also was partial to biting me with excessive force, two pieces of evidence hinting at the later revealed fact that she had never had sex before.
+The fourth was a magical picnic at a lake, where this changed.
+
+On our final night together we returned to Alchemia, a bar where we knew the bartender Iwo.
+
+It was an incredibly cosy bar where the paintings on the walls were lit by the soft glow of candles spread around the rooms. The rustic wooden tables had been packed out with people playing cards and drinking tea infused vodka, however this night it was empty.
+
+---
+
+I wish I had spent every waking minute with her.
+
+---
+
+The counterinsurgency to my feelings of regret was fittingly led by none other than Edith Piaf herself.
+As Emma and I sat in the bar, Iwo promised us a classic from each of our countries. I didn't need a fucking crystal ball to know that he was to play Land Down Under, but his pick of a 2010s French club hit subverted our mutual prediction of the classic, the timeless, the profoud /Non, je ne Regrette Rien/. Regardless, Edith sung me her existentially sonorous lullaby for the next week straight.
 
 Picnic
 Alchemia Sunday

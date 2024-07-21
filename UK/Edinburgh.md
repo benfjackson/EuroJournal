@@ -21,7 +21,9 @@ Found her online to have a pilates studio in Edinburgh.
 Tried to chase down her home studio, went into a medical centre and a church looking for it. Gave up, went to the address on google maps which led me to a furniture outlet - who directed me to a daoist meditation centre. Everyone tried their hardest to help me, sweet bonnie scotland.
 
 Airport out
-Full of people in suits working at 7:30pm. Busy boys sending busy emails making busy dollars. Made me feel self concious to pull out my laptop and start writing.
+Full of people my age in suits working at 7:30pm. Busy boys sending busy emails making busy dollars. Made me feel self concious to pull out my laptop and start writing.
+
+What the fuck am I doing. Both this trip and the writing of this journal is so self indulgent. Art is nothing without an audience, and the only audience is you, my dear self, sitting there in the future. I hope what I am writing helps you to relive or at
 
 Is writing a useless venture?
 What makes this worthwhile?

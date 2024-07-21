@@ -19,6 +19,12 @@ Guy on 2cb wilding out coz everything is 3D
 
 ---
 
+Had tea with a cute stranger I saw reading a book in a cafe.
+"Don't ever let anyone tell you how to make your tea."
+Incredible wisdom. Just because it has been done a particular way for hundreds of years, doesn't mean its the way I like to drink it.
+
+---
+
 Very impressed with the the fashion here.
 Was the first industrial city ever
 
