@@ -186,3 +186,12 @@ First Australian girl from Sydney I met.
 Gave the relationship an air of accountability.
 Would pendulum between funny to saying super bitchy comments.
 Wanted to fuck in KitKat.
+
+# Serbia
+
+## Kremna
+
+I was riding my bike down a lane that wound down behind the holiday park when I stopped to see a little
+There was an old man lying in it, peering out at me.
+He was old and grizzled, browned from days of lying in various positions.
+I saw him watching, from various positions around the

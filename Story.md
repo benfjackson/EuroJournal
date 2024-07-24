@@ -44,9 +44,13 @@ Counting/calculating/computing contraptions, crockery collections, curl capped/ 
 
 Then one day I saw the spirit of beauty creep from behind the glass that displayed it, under the peering noses of tourists, and out into the world.
 
-It ran away to a small Serbian village to live in the decrepit houses with peeling paint and falling rooves.
+It ran away to a small Serbian village to live in the decrepit houses with peeling paint and fallen rooves.
 It sits in a Berlin median strip, dancing to the songs the bees sing to their flowers.
-It lies with a shattered mirror ordered into the shape of a heart.
+It is reflected by the shattered mirror laying in the shape of a heart.
+It waits in the ink of a page for eyes to imagine it/a voice to enchant it.
+
+It glints in my eyes
+
 It concocts the strange and bizarre combinations of
 
 Like Pandora's box, I hope it shall never return to its confines.

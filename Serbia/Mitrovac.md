@@ -6,26 +6,28 @@ The mystic forest. Truly, it is its namesake.
 
 # Mycological Adventures
 
-# Picking and grilling with Dijana
+# Picking and grilling with Dajana
 
 Behind the house there was a line of tall trees, and creeping past the silent guardians would lead you to a forest enchanted by dappled sunlight, mossy reading perches and a rainbow assortment of mushrooms.
 
-My arrival was closely followed by a glorious thunderstorm that coaxed the buried mycelium to sprout its fingers into the sky in the hope it will not be dismembered by those above that hunger. Unfortunately for them, our grill was ravenous.
+The sirens of the forest sing of these mushrooms, luring the unwary with the promise of a delicious feast wearing colourful clothes of poisonous beauty.
 
 Now, the only people that are killed by poisonous mushrooms are stupid tourists who think life is a game and don't understand the very real dangers of eating the strange growths of the forest.
 Fortunately I am not one of them, for I am invincible.
 
-The siren of the forest sung to us of a grill filled with delicious mushrooms.
+Dajana (the Serbian keeper of the hostel, a talented chef who dreams of retiring to the country with a cow and mushroom filled market stall) had a grill and a dream of a mushroom feast, so recruited me into a mycalogical adventure.
 
-So, with the song of the siren ringing in our ears, we ventured into the forest armed with two empty buckets and a brazen belief in our invincibility.
+My arrival at the hostel was closely followed by a glorious thunderstorm that coaxed the buried mycelium to sprout its fingers into the sky in the hope of new life, praying it will not be dismembered by those above that hunger. Unfortunately for them, our grill was ravenous.
+
+So, with the songs of the siren ringing in our ears, we ventured into the forest armed with two empty buckets and a brazen belief in our invulnerability.
 
 We wandered amongst the trees, eyes gleefully searching for treasures buried amongst the leaves.
 Three main species presented themselves to us.
 First some golden brown medallions that wept milky tears as they were carried off for slaughter.
 Second, and most rarely, a pure white specimen that enjoyed its solitude, gleaming on its lonesome occaisonally around the forest.
-Finally we a slimy fellow with a green and purple speckled top that made it appear the least edible of the three, despite Dijana (the Serbian keeper of the hostel, a keen chef who dreamed of retiring to the country with a cow and her knitting needles) assuring me was the safest and most delicious of our collection.
+Finally we a slimy fellow with a green and purple speckled top that made it appear the least edible and appetising of the three, despite Dajana assuring me was the safest and most delicious of our collection.
 
-Dijana and I went about roaming the forest, shouts of joy announcing
+Dajana and I went about roaming the forest, shouts of joy announcing
 another thrilling find.
 How exhilirating! Spying some prey hiding in the brush, prancing over, bending over for inspection then reaching in to pluck from the dirt the gorgeous trophy by its thick white stem. Truly the thrill of a hunt.
 
