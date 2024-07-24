@@ -8,7 +8,7 @@ The mystic forest. Truly, it is its namesake.
 
 # Picking and grilling with Dajana
 
-Behind the house there was a line of tall trees, and creeping past the silent guardians would lead you to a forest enchanted by dappled sunlight, mossy reading perches and a rainbow assortment of mushrooms.
+Behind the house there was a line of tall trees, and creeping past these silent guardians would lead you to a forest enchanted by dappled sunlight, mossy reading perches and a rainbow assortment of mushrooms.
 
 The sirens of the forest sing of these mushrooms, luring the unwary with the promise of a delicious feast wearing colourful clothes of poisonous beauty.
 
@@ -22,10 +22,11 @@ My arrival at the hostel was closely followed by a glorious thunderstorm that co
 So, with the songs of the siren ringing in our ears, we ventured into the forest armed with two empty buckets and a brazen belief in our invulnerability.
 
 We wandered amongst the trees, eyes gleefully searching for treasures buried amongst the leaves.
-Three main species presented themselves to us.
+Four main species presented themselves to us.
 First some golden brown medallions that wept milky tears as they were carried off for slaughter.
 Second, and most rarely, a pure white specimen that enjoyed its solitude, gleaming on its lonesome occaisonally around the forest.
-Finally we a slimy fellow with a green and purple speckled top that made it appear the least edible and appetising of the three, despite Dajana assuring me was the safest and most delicious of our collection.
+Thirdly, we a have slimy fellow with a green and purple speckled top that made it appear the least edible and appetising of the three, despite Dajana assuring me was the safest and most delicious of our collection.
+Finally was one called Shameless, a phallic member erecting itself from the ground in rude protrusion. Despite being the perfect shape for a mouth, they were inedibly stinky.
 
 Dajana and I went about roaming the forest, shouts of joy announcing
 another thrilling find.
@@ -36,7 +37,7 @@ The cigarette drooped from his mouth as he delivered a lesson in mycology uninte
 He approved our greenish slimes, then encouraged us to lick the white ones - he grinned as we gagged at the acrid taste.
 Our brown finds he wasnt sure of and encouraged us to throw out at risk of death.
 
-The naivety of youth and overconfidence in the internet led us to ask our friend Google about the identity of our mysterious mushrooms. Reverse image search led us to the wikipedia entry for (the edible) Lactifluus Volemus, which overconfident stupidity assured us was certainly the true name of the final mushroom.
+The naivety of youth and overconfidence in the internet led us to ask our friend Google about the identity of our mysterious mushrooms. Reverse image search led us to the wikipedia entry for (the edible) Lactifluus Volemus, which overconfident courage (or stupidity depending on whether you ascribe to consequentialism or not) assured us was certainly the true name of the final mushroom.
 
 So, we grilled them all.
 Deliciously salty, charred and smokey, we feasted upon their delicious flesh under the golden sun of the meadow.
