@@ -74,7 +74,7 @@ Each moment I actively chose to remain on my own and not be with her has been a 
 ---
 
 The counterinsurgency to my feelings of regret was fittingly led by none other than Edith Piaf herself.
-As Emma and I sat in the bar, Iwo promised us a classic from each of our countries. I didn't need a fucking crystal ball to know that he was to play Land Down Under, but his pick of a 2010s French club hit subverted our mutual prediction of the classic, the timeless, the profoud /Non, je ne Regrette Rien/. Regardless, Edith sung me her existentially sonorous lullaby for the next week straight.
+As Emma and I sat in the bar, Iwo promised us a classic from each of our countries. I didn't need a fucking crystal ball to know that he was going to play Land Down Under, but his pick of a 2010s French club hit subverted our mutual prediction of the classic, the timeless, the profoud /Non, je ne Regrette Rien/. Regardless, Edith sung me her existentially sonorous lullaby for the next week straight, battling the tormenter who was enjoying pointing out how precious time together is and how much of it I chose to spend in solitude.
 
 Picnic
 Alchemia Sunday
