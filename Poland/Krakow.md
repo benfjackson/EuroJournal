@@ -24,7 +24,7 @@ My demons of regret were to come face-to-face with Edith Piaf in an incredible e
 Before we journey to the south of Poland however, we must detour to Berlin.
 In Berlin I went on a six day bender, sampling the wide variety of elixirs, magic powders, tiny runestones and herbal remedies that the magical city and its inhabitants had to offer.
 Despite this excitement, the most intense comedown I suffered from the ever potent and intoxicating oxytocin.
-The primal brain treats the abandonment of a group of friends as seriously as death itself - for our ancestors the former would almost certainly lead to the latter. Upon leaving my fiesta friends (and someone I had a flicker of a romance with), I was approached by regret's executioner.
+The primal brain treats the abandonment of a group of friends as seriously as death itself - for our ancestors the former would almost certainly lead to the latter. Upon leaving my fiesta friends (and someone I had a flicker of a romance with), I was approached by the whispering critic.
 
 I had run from Berlin to Prague, a notoriously beautiful city
 
@@ -42,6 +42,8 @@ Emma was her name. She was French, an existentialist and a chainsmoker (a triple
 
 Although English was her second language, she was still able to understand me better than anyone else I had met on my trip.
 Stripped of the wordplay and extended vocabulary I am partial to, we distilled the infinite complexities youth's angst and the life's absurdity into a simple mutually understandable set of words. Finally, I felt I had met someone who understood and saw the world as I did.
+
+discussion
 
 All we want is to see recognition of ourselves in another, to see that there are others who think like us, who feel like us - to be not so horrifically alone in this absurd world.
 

@@ -109,7 +109,7 @@ People make it up the ladder because they become the company people they need to
 
 The 3 Mancunian teenagers
 Billeh the boy who got out of a 1.5 year relationship last week but wanted the blue haired girl to know that he really liked her and its definitely not about ...
-Kiera was simultaneously a tall hot goth but also a a loud in ur face mancunian type. I walked off for 5 mins and she was making out with someone else skull emoji. She told me she was sleeping on her friends couch but I bet she didn't hehe ;P
+Kiera was simultaneously a tall hot goth but also a a loud in ur face Mancunian type. I walked off for 5 mins and she was making out with someone else skull emoji. She told me she was sleeping on her friends couch but I bet she didn't hehe ;P
 
 ## Edinburgh
 
@@ -122,14 +122,14 @@ Grace
 Not her real name, she just gave the vibes of one.
 
 The Adelaide Man
-Speaking to him was a fever dream. Aussie battler type. Full of stories that never felt super original Tough to get a word in. Was playing strong defence on the cute goth girl (I saw him ask for and get a hug when he left), who came to speak to me only after he left.
+Speaking to him was a fever dream. Aussie battler type. Full of stories that never felt super original. Tough to get a word in. Was playing strong defence on the cute goth girl (I saw him ask for and get a hug when he left), who came to speak to me only after he left.
 
 # Amsterdam
 
 # Haarlem
 
 Dani the storyteller
-Wild brown hair, eyes that widened to express any and every microemotion that passed through her words. She spoke with such a passion, and told me a little about telling stories and told me one of hers. The story featured another story told to her by a patron of a bar she used to work at. The story was about a man who saved all his pennies and died before spending any of them on anything meaningful.
+Wild brown hair, eyes that widened to express any and every microemotion that passed through her words. She spoke with such a passion, and taught me about telling stories and told me one of hers. The story featured another story told to her by a patron of a bar she used to work at. It was about a man who saved all his pennies and died before spending any of them on anything meaningful, with the moral to not wait for life to happen, to reach out and seize it. Fuggit we ball.
 She said the way to pull people into stories is to give them a few details about the setting and characters first. Describe the person & place in a way that tells u who they are.
 
 # Hamburg
@@ -184,7 +184,7 @@ Some sweet Americans, Jess was always high on mushrooms, Duane on minimum 4 subs
 Ella
 First Australian girl from Sydney I met.
 Gave the relationship an air of accountability.
-Would pendulum between funny to saying super bitchy comments.
+Would pendulum between funny and saying super bitchy comments.
 Wanted to fuck in KitKat.
 
 # Serbia
@@ -194,4 +194,42 @@ Wanted to fuck in KitKat.
 I was riding my bike down a lane that wound down behind the holiday park when I stopped to see a little
 There was an old man lying in it, peering out at me.
 He was old and grizzled, browned from days of lying in various positions.
-I saw him watching, from various positions around the
+I saw him watching, from various positions around the complex.
+He was always hard to spot, as he mostly occupied nooks and shaded corners as he sat to observe
+What he was snooping on I'm not sure, but it was directly next to where the kids were playing.
+
+# Tapa Forest
+
+Dajana
+Learnt my name from my passport, so for a week I was Benjamin.
+Was so incredibly sweet, she was always smiling, laughing, and loved cooking and taking care of me.
+Tempted me so hard with the run away from society to live simply in the woods lifestyle.
+
+Seriously and gravely told us how the bosniak genocide was self defence.
+We went mushroom hunting together.
+Wanted to adopt me - negative age gaps way of saying how hubby material I am.
+"Don't feed the stray dog."
+
+Ed & Sean
+Instantly clocked Sean, but only Ed when I saw him with Sean.
+Useless finance types who weren't so bright - incredulous I knew what dogma meant.
+Weeks after we left Serbia, I saw them post on insta stories about their adventures in Mitrovac in present tense.
+Life and travel was a commodity to be reheated in the microwave of instagram and served up to in performance for the audience of instagram.
+
+The Porridge World Champion
+Porridge theory was deeply discussed amongst the 5 English who were here for the night.
+Sean messaged his friend who enjoyed porridge, who then promptly put up a minute long story weeping about how much porridge meant to her.
+English people. You can't make that shit up.
+
+# Albania
+
+Another Boring American
+Accused us of not being good to talk to. His contributions to the conversation were: "What is ur favourite colour?"
+"What is ur perfect day?"
+
+# Montenegro
+
+\_, the Italian writer who preferred cigarettes to caffiene
+She wore a bar between her eyes and kept her hair short.
+Difficult to make eye contact with as she usually kept her gaze to herself, but had a soul wrenching depth of brown upon finally ensnaring your.
+And had an inky crescent moon guarding her heart.
