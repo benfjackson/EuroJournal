@@ -15,4 +15,9 @@ They had a big wall of portraits of people staring straight down the barrel of t
 Name, occupation, date of deportation, date of death
 Seeing this made me very emotional (also at many other points)
 
-At the end there was harrowing art with 1000s of eyes and emaciated bodies
+At the end there was a board covered in harrowing art.
+I can't find it online and I was too sad to take a picture so all I have to share are my words.
+The board said it was not art, it simply was.
+It was an expression of purest despair.
+It had the energy of cosmic horror, like there was despair and misery beyond what could be conceived by those who had not been there.
+It featured across several boards range of crowds with 1000s of eyes and emaciated bodies, giving a range of wails and
