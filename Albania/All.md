@@ -12,6 +12,7 @@ Gorgeous mediterranean coastline
 Orange mountains into clear blue waters
 
 Driving
+We rented a car
 
 Food highlights
 Stuffed peppers and eggplants were cash.

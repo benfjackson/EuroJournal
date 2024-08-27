@@ -69,3 +69,33 @@ Tesco meal deal
 B2B double full english I made at Jeanies
 Apples! Very crisp and yummy. Bisected along their x axis for a cute star and fit-into-mouth-ability
 Root vegetables were cheap so stew was good. Tried some celeriac that shit was cash, held a nice fresh watery flavour
+
+# Epilogue
+
+# Liv
+
+I realised in Montenegro that I haven't yet made any art to deal with what happened.
+I shaped my shattered mirror into heart a few months beforehand when I knew what was to happen, but other than that, the most I have done is talk to Shuktika.
+Guilt and shame are far less attractive and inspiring emotions than heartbreak or misery, so I have not felt the urge to write.
+However, writing helped me deal with my strong feelings of regret, and I have just Oscar Wilde's monologue about 'la consolation des arts' through the lips of Dorian Gray.
+It has been a fitting piece of literature that describes well so many of the views she held about life, in particular youth importance and ephemerality.
+
+Today is her birthday as well. This is a gift I will give to her in the safety of my imagination.
+
+We were never paired well to last, but naive and youthful hope helped us believe in words like eternity and forever.
+
+With the year that has passed, my guilt and shame have fermented into bitterness and resentment. Injustice stings and in war, noone wins.
+from behind the safe veil of memory
+The eye of retrospect that now watches the scenes
+
+She would torture me in our chamber of isolation, sharpened words the weapons of cruel emotional violence.
+I was alone, powerless and held within her claws sharpened by hatred and clenching with the strength of self righteousness.
+It was a shame that she dealt with her emotions by being cruel to me.
+Turning the other cheek just meant that my entire face was mauled.
+
+Interesting that knowing I was being manipulated did not stop it from happening.
+She used to complain that I wasn't a pushover for her.
+
+I shall endeavour to not be pulled into sad ramblings, listing the times I have been wronged.
+
+After 2 years, our contact ended with: "have a nice monday :)" the blank smile of the emoji conveying through all its simplistic emotional emptiness the eternalness of that Monday.

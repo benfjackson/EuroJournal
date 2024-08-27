@@ -33,6 +33,7 @@ https://www.youtube.com/watch?v=zMaYMPlWzmg&ab_channel=Prime505
 
 Vinnie
 Mr New York
+Had a cameo appearance in Jirocaster, Albania, walking down the street.
 
 ## Nerja
 
@@ -226,10 +227,28 @@ English people. You can't make that shit up.
 Another Boring American
 Accused us of not being good to talk to. His contributions to the conversation were: "What is ur favourite colour?"
 "What is ur perfect day?"
+Also did a lot of protesting? He seemed very serious about everything.
 
 # Montenegro
 
-\_, the Italian writer who preferred cigarettes to caffiene
+## Bar
+
+Alice (Aleecheh), the Italian writer who preferred cigarettes to caffiene
 She wore a bar between her eyes and kept her hair short.
-Difficult to make eye contact with as she usually kept her gaze to herself, but had a soul wrenching depth of brown upon finally ensnaring your.
-And had an inky crescent moon guarding her heart.
+Difficult to make eye contact with as she usually kept her eyes to herself, but upon finally gracing you with her gaze, the soul wrenching brown of her iris was too stunningly to stare at for too long.
+I know understand the allure of dark brown eyes.
+An inky crescent moon guards her heart, and her boyfriend does too.
+
+My own Nabakov, Russian emigré
+"Rocket scientist" who started a few companies and grew up in Basketball camps.
+Was working on a nutrition startup, tried to sell me into it. Dam bitch acting like i dont know nutrition.
+nutribalancerai.site
+
+Hamza and Nicola
+Lyon lads
+poetic in French
+
+German guy
+Bad vibes from this guy, always defensive or smth
+Gave the most classically villainous laugh when he won at undercover (chameleon game)
+"I love turning friends against eachother"
