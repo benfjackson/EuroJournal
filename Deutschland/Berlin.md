@@ -31,6 +31,9 @@ When morning had arrived, the revelers had left, leaving only the cast to perfor
 dressed vibrantly
 
 Sysiphus II
+My drug of choice for the second night was friends (and their ketamine)
+Night was a lot of fun but the hangover was brutal
+
 Sysiphus III
 On the third night I was too hungover to go out. I put on my pyjamas to go to bed. Fortunately, my pyjamas comprised of bright red socks, batik pants and my spooky man from arnhem land. A perfect outfit for Sisyphos. Equipped with the remaining mushroom brownie from Amsterdam, I braved the club in my battle armour and had a great time.
 On the way home it was Jess and I, smelling flowers and listening to bees. We had a moment of connection with nature through the a patch of lavender in the median strip of a dismally Berlin grey road.

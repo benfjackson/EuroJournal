@@ -252,3 +252,7 @@ German guy
 Bad vibes from this guy, always defensive or smth
 Gave the most classically villainous laugh when he won at undercover (chameleon game)
 "I love turning friends against eachother"
+
+# Ada Bojana
+
+see entries II & III

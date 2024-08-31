@@ -21,19 +21,23 @@ River
 The river flowed really strongly, filled with cold water. Swimming at a good click, I could manage to stay adjacent with my pile of stuff resting on the beach.
 
 Restaurants
-One of the restaurants was family owned and did a lovely seafood risotto, with fresh, meaty, fatty squid and inky black squid dye wasnt even needed to turn my shit black.
+One of the restaurants was family owned and did a lovely seafood risotto, with fresh, meaty, fatty squid and inky black squid dye wasnt even needed to turn my (recovering bowels) shit black.
 
 Dom Kulture
 Dom Kulture means the Home of Culture. It wasn't Montenegronian culture, but the culture of life itself.
+
+The music was a blend of rare and exotic sounds from all corners of the globe. They transmit their vibes out into the universe on the radio station Radio Skadar.
 
 Dance floor
 The floor itself was planked wood, rough but comfortable underfoot, weathered by the thousands of feet that had sanded it down to the rhythms of the night.
 dance powered sander
 writhing mass of bodies feeling the music and moving along with it.
+Room full of people hippy dancing, not a care in the world. Dancing like this in a pack changed the vibe to become more expressive than attention seeky.
+ofc i it boyd the df (for the nth time this trip)
 
 Vibe absolutely inexplainable. Everyone was smiling all the time, always saying hi for a chat. Didn't need to know them, never had to have met them. Eye contact and a smile off the bat. Huge juxtaposition with the hostels I had come from and gone to.
 Everyone was happy, which lifted you into an ecstatic state.
-I was absolutely glowing after having left. My food was sweeter, the things I saw more interesting.
+I was absolutely glowing after having left. My food was sweeter, the things I saw more visually interesting.
 
 ## Characters
 
@@ -53,7 +57,9 @@ The elderly patriarch knocked me out of the toilet one day and gave me a spray i
 
 Hegel Man in the Hat
 
-- option 3, I write when the writing comes from me.
+- option 3, "I write when the writing comes from me."
+  "are you here doing soul searching?"
+  "there is wisdom in the great infinity of the sea"
 
 Matej
 HEDONISM tattooed in bold cyrilic across his chest.
@@ -61,14 +67,20 @@ Moustached and mulleted.
 Great vibes eminate from this man. Big, joyful laugh that he uses to skillfully pick out an entertaining piece of your story.
 Funny guy, I couldnt follow the Serbian conversations, but I could always understand his laugh.
 Born in the 2 weeks following Belgrade bombing. Is the spirit of 'fuck it, the world will end anyway lets fucken do it'
-
 Even when he is feeling low you can see he puts in the effort to wear a smile.
 
+Despite Montenegronian being the official language of Montenegro, Serbians firmly asserted that Serbian was the language that was spoken there. (Serbian is recognised alongside - and the montenegrian i asked about it said same shit same smell)
+
 Owner of Dom Kulture
+This guy was cool. Long hair, long beard, always smiling, rarely wearing clothes.
 
 Gizmo & Igor
 
 My Saviour in the Floral Shirt
 
 Heroin couple
-always domesticing
+always domesticing - horrific vibes
+
+# FOOD POISONING
+
+I died in Ada Bojana.
