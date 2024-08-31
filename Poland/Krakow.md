@@ -84,8 +84,14 @@ Zapekanke
 
 Non, je ne regrette rien.
 
+We went on a church crawl and saw some gorgeously gilded orthodox cathedrals.
+I love the 2Dness of their iconography.
+It was sunday, so the church was packed out, so I had to return on my own the following day for the service.
+There was a lady singing with the most angelic voice. In the monotonic style, she soared over the top of the priests prayers. Her voice was pure and holy, filling the hall with the wonder of the divine.
+It was the perfect, most holy soundtrack for watching the priests parade their extravagent red & gilded robes, read from ancient tomes and distribute eucharist to the congregation.
+
 Food highlights
 Zapekanke
 They were like a baguette with mushroom, cheese and various toppings on them
 
-Pierogi were ok, I dont think I got super good ones. The day I was leaving I saw some for sale to be cooked in the kitchen, but I had no kitchen access ;\_;
+Pierogi were ok, I dont think I got super good ones. The day I was leaving I saw some for sale to be cooked in the kitchen, but I had no kitchen access at that point. ;\_;
