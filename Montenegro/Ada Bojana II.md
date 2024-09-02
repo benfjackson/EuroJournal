@@ -73,6 +73,7 @@ Despite Montenegronian being the official language of Montenegro, Serbians firml
 
 Owner of Dom Kulture
 This guy was cool. Long hair, long beard, always smiling, rarely wearing clothes.
+Coolest mf ever
 
 Gizmo & Igor
 
@@ -83,4 +84,41 @@ always domesticing - horrific vibes
 
 # FOOD POISONING
 
+\*This is a rewriting of this story.\*
+
+Drunk, high and a little hungry, a peach off the ground as a bedtime snack seemed like a good idea at the time. (Liv questioned me about why I flirted with her moments after I wrote this sentence)
+When I woke up the heroin couple was getting ready to leave. The goodbye they got from me was spraying my stomachs contents into the vines of the jungle (parallel).
+When all the food had gone, my soul (carefully curated gut biome) leaked out of me, where it lay on the ground glistening and golden.
+The day was brutal. My body rejected anything and everything I fed it.
+All I could manage was lying on the sand and listening to The Necklace.
+With no cupboard with a top shelf lime juice cordial, I stupidly did not drink any juice. This meant that I woke the following day with a bursting rectum and a few drops that had snuck past the night watchman.
+My master plan was: toilet -> coca cola at Dom Kulture
+I stood up and my vision tunneled,
+A few steps were all I could manage before falling to my knees, head spinning.
+My blood sugar was critically low.
+I fell forward and passed out.
+While I was out, someone shat my pants for me. Now my ass was no longer bursting, which was nice.
+As I came to, I realised that the 50m to Dom kulture was now unfathomably far and the techno bar I was sleeping next to that had been tormenting me nightly was now my only hope.
+Both my vision and my entire being had become fuzzy.
+Survival instict kicked in, and I crawled, towards the techno and towards salvation.
+Crawl
+Crawl
+Pass out
+I made it to the road.
+Indomitable, I crawled.
+Crawl
+crawl
+pass out.
+
+Here, I died, and it was nothingness. Not like the half being that is sleep, there was nothing.
+I have no idea how long I was lying there before I came to.
+
+No cars must have come along the road, because each time I passed out, I woke up alive.
+
+They all thought I had been doing drugs, and offered me some when I said I hadnt.
+
 I died in Ada Bojana.
+
+Glass by glass, I bought and drank their entire stock of lemonade.
+
+The following days were like I had been reborn
