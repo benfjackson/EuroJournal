@@ -18,3 +18,6 @@ On parting we had the longest hug of my whole trip - I think it even longer than
 
 Matej also contacted me to say my phone had washed up on the beach. My drowned son, dead from my inattention, had reappeared as a corpse. The only card remaining was my student ID. Im literally not even a student anymore.
 After a week of hunting, my deus ex machina had arrived. The SIM card still worked and I was able to retrieve my whatsapp backup with Emmas contact on it.
+
+He repeatedly cooked me at chess. I could get ahead in games, but he always clutched up and punished a slight mistake to come back and win.
+We spent the last afternoon together playing a game called Quoridor which was a lot of fun for 2 cheeky boys.
