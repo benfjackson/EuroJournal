@@ -28,3 +28,5 @@ We had yummy preserved fruits, in particular a large jar of apricots preserved w
 Finally! local, Cheap olive oil.
 
 Arugla ice cream - DELICIOUS! paired with white chocolate and other sweet goodies, the trace amounts of rocket provided a vibrant green and a smokey flavour to the ice cream
+
+Swimming with raph, tossing a singular tomato between us, dipping each bite in the deliciously salty, crystal blue waters of the mediterranean.
