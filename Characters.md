@@ -252,7 +252,15 @@ German guy
 Bad vibes from this guy, always defensive or smth
 Gave the most classically villainous laugh when he won at undercover (chameleon game)
 "I love turning friends against eachother"
+bad vibes are contagious, after leaving here, I was drained and feeling not great, even though I had just come from and was retuurning to Ada Bojana.
 
 # Ada Bojana
 
 see entries II & III
+
+# France
+
+Emma II
+
+Emmas friends
+Philosophers and art lovers, Emmas friends were elegantly French. They managed to have very interesting discussions and be v hot at the same time - a rarity only my vanity pulls off.
