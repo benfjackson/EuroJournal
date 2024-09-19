@@ -11,6 +11,12 @@ pain fried in buerre, dijon mayonnaise, tomato, melted fromage, pickles. My my w
 
 Emma thought I was an excellent "cooker." Shes not wrong hehe
 
+# Cathedral de la Dame
+
+Tasteful use of gold compared to the Italians, C'est elegance du Francais - Emma
+Gorgeous enormous mosaics showing iconic french scenes.
+One a priest praying for victory over the turks in a naval scene, the other a joan of arc scene
+
 ## Philosophy class
 
 Class is the same everywhere, some ppl listen, some bum around on their laptops.
@@ -46,6 +52,7 @@ Je les veux tous!"
 ---
 
 Chess
+We played several games, all of which Emma should have won, but I came out victorious. Some blunders led to comebacks but the most offensive one was where I had a single rook no pawns to her queen and many pawns, but she neglected to move her king from behind mine against the wall, allowing me a cheeky checkmate.
 
 Discussions
 Again, Emma and I had a series of very interesting dialogues around various philosphical subjects, covering what she was studying in class, travel, AI, adventuring in the world vs in books, and how projects bring meaning (aka what I should be doing with my life).

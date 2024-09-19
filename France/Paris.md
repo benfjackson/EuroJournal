@@ -38,4 +38,7 @@ Satre and De Beauvoir, we sat and discussed love and relationships (our coy walt
 Keen to see the impressionist exhibition, Emma, Aurora and I scurried along to the station, where they got in for free while I was stung with the full fee. We had to hurry, for we only had 3 hours to spend at the gallery before our respective tickets to Lyon were scheduled.
 Van Gogh's colouring was the star, gorgeously vivid and intense. A self portrait of his looked intense, slightly scared and affronted, as the crowd rotated through its queue of selfie takers each enjoying recording their moment with his fame.
 
+## Walking around Paris
+
 Military wearing bereet - only in France lmao
+Streetballers saying oo la la with an attempt at masculinity when their friend pulled out some fancy moves at streetball.

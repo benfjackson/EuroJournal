@@ -84,41 +84,58 @@ always domesticing - horrific vibes
 
 # FOOD POISONING
 
-\*This is a rewriting of this story.\*
+Drunk, high and a little hungry, a peach off the ground as a bedtime snack seemed like a good idea at the time.
+When I woke up the heroin couple was getting ready to leave. To say goodbye, I sprayed my stomachs contents across the vines of the jungle.
+I vomited the peach, the yoghurt, my incinvibility, until there was nothing left, whence the gut biome I have so carefully curated was thrown to the ground.
+My soul died before me, a glistening golden puddle torn from my body to lie terrified on the jungle floor.
 
-Drunk, high and a little hungry, a peach off the ground as a bedtime snack seemed like a good idea at the time. (Liv questioned me about why I flirted with her moments after I wrote this sentence)
-When I woke up the heroin couple was getting ready to leave. The goodbye they got from me was spraying my stomachs contents into the vines of the jungle (parallel).
-When all the food had gone, my soul (carefully curated gut biome) leaked out of me, where it lay on the ground glistening and golden.
-The day was brutal. My body rejected anything and everything I fed it.
-All I could manage was lying on the sand and listening to The Necklace.
-With no cupboard with a top shelf lime juice cordial, I stupidly did not drink any juice. This meant that I woke the following day with a bursting rectum and a few drops that had snuck past the night watchman.
-My master plan was: toilet -> coca cola at Dom Kulture
-I stood up and my vision tunneled,
-A few steps were all I could manage before falling to my knees, head spinning.
+The day was brutal. My body rejected anything and everything I fed it, and all I could manage was lying on the sand and listening to The Necklace, my scathing critiques forgotten as it became my only comfort in the world.
+
+With no easy access to a cupboard's top shelf hiding delicious lime juice cordial from sugar deprived children, I did not keep my blood sugar up.
+
+I went to sleep hungry and woozy, to wake the following day with a bursting rectum and a few drops that had snuck past the night watchman.
+Lying in my hammock, a master plan came to me: toilet, coca cola and a swim.
+
+However, with each of the 3 steps I took towards Dom Kulture, my vision closed on me, tunneling, forcing me to my knees, then pushing me forward to pass out in the dirt.
 My blood sugar was critically low.
-I fell forward and passed out.
-While I was out, someone shat my pants for me. Now my ass was no longer bursting, which was nice.
-As I came to, I realised that the 50m to Dom kulture was now unfathomably far and the techno bar I was sleeping next to that had been tormenting me nightly was now my only hope.
-Both my vision and my entire being had become fuzzy.
-Survival instict kicked in, and I crawled, towards the techno and towards salvation.
-Crawl
-Crawl
-Pass out
-I made it to the road.
+
+Upon coming to I was incredibly weak and lightheaded – I tried to stand and failed.
+The 50m to Dom kulture was now unfathomably far.
+The techno bar I was sleeping next to, the bar that had been tormenting me nightly with its annoyingly good annoyingly late music, was now my only hope.
+
+Only the most severe cases of hypoglycemia can lead to a loss of conciousness, and without quick action, can lead to a coma or death.
+I could feel the threat I was under, so I crawled.
+
+My adventure could not end here. I have a life to return to in Aus, family, friends, all so far away on the other side of the world.
+Dying of food poisoning in the jungles of Ada Bojana is the equivalent of elvis going out on the toilet, and I refuse to let this happen.
 Indomitable, I crawled.
+
+I made it to the road.
 Crawl
 crawl
 pass out.
-
-Here, I died, and it was nothingness. Not like the half being that is sleep, there was nothing.
-I have no idea how long I was lying there before I came to.
-
 No cars must have come along the road, because each time I passed out, I woke up alive.
+While I was out, someone (not me) had shat my pants. Now my ass was no longer bursting, which was nice, but my pants were full of shit that ran down my legs, mushed my socks and seeped into the black Brooks I had proudly worn to KitKat, which wasn't nice.
 
-They all thought I had been doing drugs, and offered me some when I said I hadnt.
+Dirt, techno, shat pants and half concious crawling had become my universe, the only thing I had ever done, and the singular focus of my being.
+Towards the thumping bassline and towards salvation.
+Crawl
+Crawl
+Pass out.
 
-I died in Ada Bojana.
+Finally, after the 15 longest metres ever, I crawled into the entrance of the bar.
+Here, I died, and it was nothingness.
+This was not the half being that is sleep, this was pure nothingness. I was not.
 
-Glass by glass, I bought and drank their entire stock of lemonade.
+I have no idea how long I was lying there before I was resurrected with a gasp by a gruff angel in a floral beach shirt holding an emptied glass of water.
+"Have you taken any drugs?" he asked.
+He offered me some when I said I hadnt - XTC would give me the energy boost I needed.
+I declined.
+A good Christian, the cold splash of holy water had promised me a second chance at life, so I sat squelchingly down at the bar.
+
+There, in their fridge, I spied it, that beautiful sugary commodity, the golden elixir, ambrosia, the nectar of eternal life – lemonade.
+Glass by glass, I bought and drank their entire stock.
+
+2.  It was to rain that night, rendering my hammock unsleepable, so from a cosy comfortable seat in Dom Kulture, I watched the dance floor undulate with its writhing battlefield of hippies and wrote this story.
 
 The following days were like I had been reborn
